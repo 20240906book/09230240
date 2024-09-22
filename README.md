@@ -14,3 +14,17 @@ aoyama grand hotel
 觀光
 看看風景
 體驗
+https://www.shibuya-scramble-square.com/sky/
+
+四個平台
+創造下面成為他們的平台
+跨國流行平台
+交流
+
+讓人們需要你的平台
+社群交流論壇
+發文
+
+創作
+
+訂閱追隨
